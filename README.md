@@ -1,1 +1,1 @@
-# that which does not kill me, makes me stronger.
+# I'll stir fry you in my wok
